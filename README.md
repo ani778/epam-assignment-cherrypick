@@ -5,7 +5,8 @@ Achievements:
  My Push-Swap project.
  I got my PHD in medicine
 Other:
- Hardworking
- Open minded
- Problem solving
+ Hardworker
+ Open minder
+ Problem solvier
  Friendly
+ Logical thinker
